@@ -1,2 +1,2 @@
-# chameera01..github.io
+# chameera01.github.io
 about me...
